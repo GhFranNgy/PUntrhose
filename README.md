@@ -1,4 +1,4 @@
-- Heho
+- Heyho
 - people who use cheats have skill issues
 
 <!---
